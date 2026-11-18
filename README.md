@@ -1,2 +1,0 @@
-# sakthi---portfolio
-.
